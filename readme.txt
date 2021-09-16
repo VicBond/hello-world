@@ -1,7 +1,1 @@
-Hare Krishna
-Hare Krishna
-Krishna Krishna
-Hare Hare
-
-Hare Rama
-Hare Rama
+Ekadashi 16.09.2021
